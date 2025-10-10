@@ -4,4 +4,4 @@ I’m a Frontend Software Engineer based in the NYC metro area and have official
 
 Outside of code, I enjoy diamond painting, watching youtube videos, and browsing vintage stores.
 
-Thanks for stopping by (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ 
+Thanks for stopping by (ﾉ◕ヮ◕)ﾉ*:･ﾟ
